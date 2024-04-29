@@ -1,1 +1,0 @@
-# Ishika Agarwal Resume.
